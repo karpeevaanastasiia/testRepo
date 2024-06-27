@@ -2,7 +2,7 @@
 ## Contacts
 1. **Location:** Georgia, Batumi
 2. **Phone:** +995 592 115 065
-3. **E-mail:** ankarpeeva10@gmail\.com
+3. **E-mail:** ankarpeeva10@gmail\.com\
 4. **GitHub:** [ankarpeeva](https://github.com/karpeevaanastasiia)
 ## About me
 I am a responsible, purposeful worker, I always strive to reach the truth. 
